@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @matt6227
+- 👀 I’m interested in building personal projects
+- 🌱 I’m currently learning a student at Tufts Univesity
+- 📫 How to reach me: matthewsoto73@gmail.com
